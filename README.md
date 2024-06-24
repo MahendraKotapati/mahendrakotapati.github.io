@@ -1,1 +1,1 @@
-# Mahendra_Kotapati.github.io
+# mahendrakotapati.github.io
